@@ -1,1 +1,0 @@
-# GurneckJohal.github.io
